@@ -31,6 +31,8 @@ __Испольнитель:__
 
 ![image](https://github.com/Nemious/LAB.11/assets/146121558/b0b18091-1766-4938-bb83-f70ca1e7469f)
 
+![image](https://github.com/Nemious/LAB.11/assets/146121558/8204eaf3-c89f-4172-b16b-67d594e211b4)
+
 
 
 
